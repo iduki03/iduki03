@@ -1,4 +1,4 @@
-### Hi there 👋
+### わざわざこのページに来たお前！悪いがここにはなにもないぞ！！
 
 <!--
 **iduki03/iduki03** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
